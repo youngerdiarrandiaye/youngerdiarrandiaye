@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 
 ## Hi there 👋
-My name is Youssou
+My name is Mohamed Thiare
 
 ### Languages and Tools:
 
