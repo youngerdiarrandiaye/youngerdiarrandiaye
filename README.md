@@ -42,6 +42,6 @@ My name is YOUSSOU DIARRA
 
 
 
-[1703646317674](https://github.com/youngerdiarrandiaye/youngerdiarrandiaye/assets/122989242/b207ec0d-7b5f-4649-aead-ec00954c1cf3)
+![Profile Views][1703646317674](https://github.com/youngerdiarrandiaye/youngerdiarrandiaye/assets/122989242/b207ec0d-7b5f-4649-aead-ec00954c1cf3)
 
 
